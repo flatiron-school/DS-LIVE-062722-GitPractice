@@ -73,6 +73,10 @@ improve!
 
 ### Kevin
 
+![dramatic chipmunk gif](https://media.giphy.com/media/kKdgdeuO2M08M/giphy.gif)
+
+
+
 
 ### Garrett
 
