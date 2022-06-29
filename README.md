@@ -46,8 +46,7 @@ improve!
 
 ### Ian
 
-![It's Wednesday My Dudes gif](https://giphy.com/gifs/weird-scream-dudes-dvDCHPFnxnYubsrNvl)
-
+![It's Wednesday My Dudes gif](https://giphy.com/clips/plusQA-test-partner-1iemyTrXywCBcE8WOi.gif)
 
 ### Mitch
 
