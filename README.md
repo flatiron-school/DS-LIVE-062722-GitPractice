@@ -57,7 +57,7 @@ improve!
 
 
 ### Jordan
-![Head Explode GIF](https://tenor.com/bbZzx.gif)
+![Head Explode GIF](https://thumbs.gfycat.com/AcrobaticLeftIndianpalmsquirrel-mobile.mp4)
 
 ### Abdulrahman
 
