@@ -83,7 +83,7 @@ improve!
 ![Luffy is ready to eat](https://c.tenor.com/iAZ1tTJbj4YAAAAC/food-luffy.gif)
 
 ### Kelly
-
+![Wednesday Gif](https://media.giphy.com/media/BVSMbtX5ZRGqwnCQnX/giphy.gif)
 
 ### Alec
 
