@@ -57,7 +57,7 @@ improve!
 
 
 ### Jordan
-![Head Explode GIF](https://giphy.com/gifs/firstandmonday-ahhhh-martian-head-explode-5wWf7Hi5aXu3JiXXwli)
+![Head Explode GIF](https://tenor.com/bbZzx.gif)
 
 ### Abdulrahman
 
