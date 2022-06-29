@@ -54,7 +54,7 @@ improve!
 
 
 ### Ashli
-
+![the process](https://media.giphy.com/media/cnhpl4IeYgU7MCBdV2/giphy.gif)
 
 ### Jordan
 
