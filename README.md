@@ -26,8 +26,6 @@ improve!
 
 ### David
 
-This is the real change.
-
 ![Camel Hump day gif](https://media.giphy.com/media/BVSMbtX5ZRGqwnCQnX/giphy.gif)
 
 
@@ -38,7 +36,11 @@ This is the real change.
 
 
 ### Ben
+
+
+
 ! [Sesame street gif](https://c.tenor.com/XVDEe57ClHUAAAAC/halfway-there.gif)
+
 
 ### Alvaro
 
@@ -48,28 +50,28 @@ This is the real change.
 
 ### Ian
 
-![It's Wednesday My Dudes gif](https://giphy.com/clips/plusQA-test-partner-1iemyTrXywCBcE8WOi)
-
 
 ### Mitch
 
 
 ### Charlie
 
-![Ray Charles Feeling Good](https://media.giphy.com/media/JpLe7RraexuAqCobnf/giphy.gif)
+
 ### Ashli
-![the process](https://media.giphy.com/media/cnhpl4IeYgU7MCBdV2/giphy.gif)
+
 
 ### Jordan
 
 
 ### Abdulrahman
 
+![Spongebob Vibin](https://media.giphy.com/media/tqfS3mgQU28ko/giphy.gif)
+
 ### Charles
-![Peepo](https://thumbs.gfycat.com/DesertedNeglectedErne-max-1mb.gif)
+
 
 ### Kevin
-https://giphy.com/gifs/watching-LNDMjtqYayNtC
+
 
 ### Garrett
 
@@ -88,7 +90,7 @@ https://giphy.com/gifs/watching-LNDMjtqYayNtC
 
 
 ### Ali
-https://giphy.com/gifs/news-omg-shocked-xUNemVaUZFSgHxvQXK
+
 
 ### Cameron
 
