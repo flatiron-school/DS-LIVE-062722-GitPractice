@@ -38,8 +38,12 @@ improve!
 ### Ben
 
 
-### Alvaro
 
+! [Sesame street gif](https://c.tenor.com/XVDEe57ClHUAAAAC/halfway-there.gif)
+
+
+### Alvaro
+![Steph Curry sleep gif](https://tenor.com/view/celebration-sleep-warriors-steph-curry-gif-25736719)
 
 ### Brenda
 
@@ -49,7 +53,7 @@ improve!
 ![It's Wednesday My Dudes gif](https://giphy.com/clips/plusQA-test-partner-1iemyTrXywCBcE8WOi.gif)
 
 ### Mitch
-
+![sleepy pancake man](https://media.giphy.com/media/l0Hluv3yV9QRirYc0/giphy.gif)
 
 ### Charlie
 
@@ -58,22 +62,28 @@ improve!
 
 
 ### Jordan
-
+![Head Explode GIF](https://media0.giphy.com/media/13ea4eXuOuQsmY/giphy.gif?cid=ecf05e473h9srncsrzvgfp3kmlldvc4njkiglr2hf7sv7tb8&rid=giphy.gif&ct=g)
 
 ### Abdulrahman
 
+![Spongebob Vibin](https://media.giphy.com/media/tqfS3mgQU28ko/giphy.gif)
 
 ### Charles
 
 
 ### Kevin
 
+![dramatic chipmunk gif](https://media.giphy.com/media/kKdgdeuO2M08M/giphy.gif)
+
+
+
 
 ### Garrett
 
+![Luffy is ready to eat](https://c.tenor.com/iAZ1tTJbj4YAAAAC/food-luffy.gif)
 
 ### Kelly
-
+![Wednesday Gif](https://media.giphy.com/media/BVSMbtX5ZRGqwnCQnX/giphy.gif)
 
 ### Alec
 
@@ -82,7 +92,7 @@ improve!
 
 
 ### Matt
-
+![back to school](https://media.giphy.com/media/rvhps5a80Ov4s/giphy.gif)
 
 ### Ali
 
@@ -94,3 +104,4 @@ improve!
 
 
 ### Nic
+![boat](https://giphy.com/gifs/monkey-driving-chimp-3o85xAYQLOhSrmINHO)
