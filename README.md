@@ -26,7 +26,7 @@ improve!
 
 ### David
 
-![YES from giphy](https://media.giphy.com/media/IbOiFIJcSlHW2rgVUa/giphy.gif)
+![Camel Hump day gif](https://media.giphy.com/media/BVSMbtX5ZRGqwnCQnX/giphy.gif)
 
 
 ### John
