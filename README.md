@@ -72,12 +72,7 @@ improve!
 
 
 ### Kelly
-<div style="width:100%;height:0;padding-bottom:100%;position:relative;"><iframe 
-src="https://giphy.com/embed/SU9NNj5DxkZxvH6XN1" width="100%" height="100%" 
-style="position:absolute" frameBorder="0" class="giphy-embed" 
-allowFullScreen></iframe></div><p><a 
-href="https://giphy.com/gifs/MeanGirls-mean-girls-wednesday-amanda-seyfried-SU9NNj5DxkZxvH6XN1">via 
-GIPHY</a></p>
+https://media.giphy.com/media/SU9NNj5DxkZxvH6XN1/giphy-downsized-large.gif
 
 ### Alec
 
