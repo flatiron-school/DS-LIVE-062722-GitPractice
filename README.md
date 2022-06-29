@@ -1,4 +1,4 @@
-i# Guided Git GIF-STRAVAGANZA (DS-Live-NTL-062722)
+# Guided Git GIF-STRAVAGANZA (DS-Live-NTL-062722)
 
 Today's challenge is to contribute to a Git repository, using branches and pull requests! 
 We'll be using a *Git branching workflow* so we can all contribute to this README file.
