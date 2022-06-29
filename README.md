@@ -52,7 +52,7 @@ improve!
 
 ### Charlie
 
-
+![Ray Charles Feeling Good](https://media.giphy.com/media/JpLe7RraexuAqCobnf/giphy.gif)
 ### Ashli
 
 
