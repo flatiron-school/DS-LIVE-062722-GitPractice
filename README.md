@@ -38,6 +38,10 @@ improve!
 ### Ben
 
 
+
+! [Sesame street gif](https://c.tenor.com/XVDEe57ClHUAAAAC/halfway-there.gif)
+
+
 ### Alvaro
 
 
@@ -71,6 +75,7 @@ improve!
 
 ### Garrett
 
+![Luffy is ready to eat](https://c.tenor.com/iAZ1tTJbj4YAAAAC/food-luffy.gif)
 
 ### Kelly
 
