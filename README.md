@@ -52,7 +52,7 @@ This is the real change.
 
 
 ### Mitch
-
+![sleepy pancake man](https://media.giphy.com/media/l0Hluv3yV9QRirYc0/giphy.gif)
 
 ### Charlie
 
