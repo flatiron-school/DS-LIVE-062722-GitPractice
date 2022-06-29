@@ -1,4 +1,4 @@
-# Guided Git GIF-STRAVAGANZA (DS-Live-NTL-062722)
+i# Guided Git GIF-STRAVAGANZA (DS-Live-NTL-062722)
 
 Today's challenge is to contribute to a Git repository, using branches and pull requests! 
 We'll be using a *Git branching workflow* so we can all contribute to this README file.
@@ -26,6 +26,8 @@ improve!
 
 ### David
 
+This is the real change.
+
 ![Camel Hump day gif](https://media.giphy.com/media/BVSMbtX5ZRGqwnCQnX/giphy.gif)
 
 
@@ -36,7 +38,7 @@ improve!
 
 
 ### Ben
-
+! [Sesame Street] (https://c.tenor.com/XVDEe57ClHUAAAAC/halfway-there.gif)
 
 ### Alvaro
 
@@ -46,28 +48,28 @@ improve!
 
 ### Ian
 
+![It's Wednesday My Dudes gif](https://giphy.com/clips/plusQA-test-partner-1iemyTrXywCBcE8WOi)
+
 
 ### Mitch
 
 
 ### Charlie
 
-
+![Ray Charles Feeling Good](https://media.giphy.com/media/JpLe7RraexuAqCobnf/giphy.gif)
 ### Ashli
-
+![the process](https://media.giphy.com/media/cnhpl4IeYgU7MCBdV2/giphy.gif)
 
 ### Jordan
 
 
 ### Abdulrahman
 
-![Spongebob Vibin](https://media.giphy.com/media/tqfS3mgQU28ko/giphy.gif)
-
 ### Charles
-
+![Peepo](https://thumbs.gfycat.com/DesertedNeglectedErne-max-1mb.gif)
 
 ### Kevin
-
+https://giphy.com/gifs/watching-LNDMjtqYayNtC
 
 ### Garrett
 
@@ -85,7 +87,7 @@ improve!
 
 
 ### Ali
-
+https://giphy.com/gifs/news-omg-shocked-xUNemVaUZFSgHxvQXK
 
 ### Cameron
 
