@@ -84,7 +84,7 @@ improve!
 
 
 ### Ali
-
+https://giphy.com/gifs/news-omg-shocked-xUNemVaUZFSgHxvQXK
 
 ### Cameron
 
