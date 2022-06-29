@@ -1,4 +1,5 @@
-# Guided Git GIF-STRAVAGANZA (DS-Live-NTL-062722)
+# 
+Guided Git GIF-STRAVAGANZA (DS-Live-NTL-062722)
 
 Today's challenge is to contribute to a Git repository, using branches and pull requests! 
 We'll be using a *Git branching workflow* so we can all contribute to this README file.
@@ -43,10 +44,10 @@ improve!
 
 
 ### Alvaro
-![Steph Curry sleep gif](https://tenor.com/view/celebration-sleep-warriors-steph-curry-gif-25736719)
+![Steph Curry gif](https://giphy.com/gifs/nba-dW7qj1hS9swu1MnXOC.gif)
 
 ### Brenda
-
+![working dog](https://giphy.com/gifs/jiffpom-working-keyboard-typing-mFwqFZx1HxfQ4hwkz9.gif)
 
 ### Ian
 
