@@ -73,6 +73,7 @@ https://giphy.com/gifs/watching-LNDMjtqYayNtC
 
 ### Garrett
 
+![Luffy is ready to eat](https://c.tenor.com/iAZ1tTJbj4YAAAAC/food-luffy.gif)
 
 ### Kelly
 
