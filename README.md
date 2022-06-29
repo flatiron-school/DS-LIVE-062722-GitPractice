@@ -46,7 +46,7 @@ improve!
 
 ### Ian
 
-![It's Wednesday My Dudes gif](https://giphy.com/clips/plusQA-test-partner-1iemyTrXywCBcE8WOi.gif)
+![It's Wednesday My Dudes gif](https://media.giphy.com/media/dvDCHPFnxnYubsrNvl/giphy.gif)
 
 ### Mitch
 
