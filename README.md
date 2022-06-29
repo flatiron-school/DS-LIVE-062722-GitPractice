@@ -63,10 +63,8 @@ This is the real change.
 
 ### Abdulrahman
 
-![Spongebob Vibin](https://media.giphy.com/media/tqfS3mgQU28ko/giphy.gif)
-
 ### Charles
-
+![Peepo](https://thumbs.gfycat.com/DesertedNeglectedErne-max-1mb.gif)
 
 ### Kevin
 
