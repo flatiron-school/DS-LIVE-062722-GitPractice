@@ -36,7 +36,7 @@ improve!
 
 
 ### Ben
-! [Sesame Street] (https://c.tenor.com/XVDEe57ClHUAAAAC/halfway-there.gif)
+! [Sesame street gif](https://c.tenor.com/XVDEe57ClHUAAAAC/halfway-there.gif)
 
 ### Alvaro
 
