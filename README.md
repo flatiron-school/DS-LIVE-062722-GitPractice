@@ -58,7 +58,7 @@ This is the real change.
 
 ![Ray Charles Feeling Good](https://media.giphy.com/media/JpLe7RraexuAqCobnf/giphy.gif)
 ### Ashli
-
+![the process](https://media.giphy.com/media/cnhpl4IeYgU7MCBdV2/giphy.gif)
 
 ### Jordan
 
