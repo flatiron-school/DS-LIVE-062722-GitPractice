@@ -1,4 +1,4 @@
-i# Guided Git GIF-STRAVAGANZA (DS-Live-NTL-062722)
+# Guided Git GIF-STRAVAGANZA (DS-Live-NTL-062722)
 
 Today's challenge is to contribute to a Git repository, using branches and pull requests! 
 We'll be using a *Git branching workflow* so we can all contribute to this README file.
@@ -38,7 +38,7 @@ This is the real change.
 
 
 ### Ben
-! [Sesame Street] (https://c.tenor.com/XVDEe57ClHUAAAAC/halfway-there.gif)
+! [Sesame street gif](https://c.tenor.com/XVDEe57ClHUAAAAC/halfway-there.gif)
 
 ### Alvaro
 
@@ -73,6 +73,7 @@ https://giphy.com/gifs/watching-LNDMjtqYayNtC
 
 ### Garrett
 
+![Luffy is ready to eat](https://c.tenor.com/iAZ1tTJbj4YAAAAC/food-luffy.gif)
 
 ### Kelly
 
