@@ -72,7 +72,7 @@ improve!
 
 
 ### Kelly
-https://media.giphy.com/media/SU9NNj5DxkZxvH6XN1/giphy-downsized-large.gif
+![Wednesday Gif](https://media.giphy.com/media/SU9NNj5DxkZxvH6XN1/giphy-downsized-large.gif)
 
 ### Alec
 
