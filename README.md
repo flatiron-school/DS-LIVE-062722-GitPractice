@@ -38,6 +38,10 @@ improve!
 ### Ben
 
 
+
+! [Sesame street gif](https://c.tenor.com/XVDEe57ClHUAAAAC/halfway-there.gif)
+
+
 ### Alvaro
 
 
@@ -46,6 +50,7 @@ improve!
 
 ### Ian
 
+![It's Wednesday My Dudes gif](https://giphy.com/gifs/weird-scream-dudes-dvDCHPFnxnYubsrNvl)
 
 ### Mitch
 
@@ -57,19 +62,25 @@ improve!
 
 
 ### Jordan
-
+![Head Explode GIF](https://media0.giphy.com/media/13ea4eXuOuQsmY/giphy.gif?cid=ecf05e473h9srncsrzvgfp3kmlldvc4njkiglr2hf7sv7tb8&rid=giphy.gif&ct=g)
 
 ### Abdulrahman
 
+![Spongebob Vibin](https://media.giphy.com/media/tqfS3mgQU28ko/giphy.gif)
 
 ### Charles
 
 
 ### Kevin
+
 ![dramatic chipmunk gif](https://media.giphy.com/media/kKdgdeuO2M08M/giphy.gif)
+
+
+
 
 ### Garrett
 
+![Luffy is ready to eat](https://c.tenor.com/iAZ1tTJbj4YAAAAC/food-luffy.gif)
 
 ### Kelly
 
