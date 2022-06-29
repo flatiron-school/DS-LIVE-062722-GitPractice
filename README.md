@@ -36,11 +36,7 @@ improve!
 
 
 ### Ben
-
-
-
-! [Sesame street gif](https://c.tenor.com/XVDEe57ClHUAAAAC/halfway-there.gif)
-
+![Sesame street gif](https://c.tenor.com/XVDEe57ClHUAAAAC/halfway-there.gif)
 
 ### Alvaro
 ![Steph Curry gif](https://giphy.com/gifs/nba-dW7qj1hS9swu1MnXOC)
