@@ -87,7 +87,7 @@ This is the real change.
 
 
 ### Ali
-
+https://giphy.com/gifs/news-omg-shocked-xUNemVaUZFSgHxvQXK
 
 ### Cameron
 
