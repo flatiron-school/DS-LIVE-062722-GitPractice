@@ -53,7 +53,7 @@ improve!
 ![It's Wednesday My Dudes gif](https://giphy.com/gifs/weird-scream-dudes-dvDCHPFnxnYubsrNvl)
 
 ### Mitch
-
+![sleepy pancake man](https://media.giphy.com/media/l0Hluv3yV9QRirYc0/giphy.gif)
 
 ### Charlie
 
