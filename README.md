@@ -85,7 +85,7 @@ improve!
 
 
 ### Ji
-
+![Kobe](http://www.sbnation.com/nba/2012/5/1/2993051/kobe-bryant-nba-playoffs-2012-)
 
 ### Matt
 ![back to school](https://media.giphy.com/media/rvhps5a80Ov4s/giphy.gif)
